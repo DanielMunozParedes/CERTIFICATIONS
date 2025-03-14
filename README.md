@@ -1,2 +1,2 @@
 # CERTIFICATIONS
-Certifications and especializations.
+Certifications and specializations.
